@@ -1,1 +1,1 @@
-# Desafio-t-cnico---Desafio-t-cnico
+# Desafio-tecnico---Desafio-t-cnico
